@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nicatucci
+- 👀 I’m interested in health and building the immune system.
+- 🌱 I’m currently learning seed variations and firmentation.
+- 💞️ I’m looking to collaborate on different pickling results and their effect once consumed upon the human digestive system.
+- 📫 How to reach me nicatucci@gmail.com
